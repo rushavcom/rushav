@@ -1,4 +1,4 @@
-<font-size:xx-large; font-weight:900; font-style:normal>
+<p style="font-family:fantasy; font-size:xx-large; font-weight:900; font-style:normal; ">
 Rush<br>
 ❤️ 👉 【重要提醒】收藏 Rush在线看片-免费视频 www.rushdizhi.com 避免迷路！<br>
 ❤️ 👉 【地址1】 ： www.rushav1.xyz<br>
@@ -6,7 +6,7 @@ Rush<br>
 ❤️ 👉 【地址3】 ： www.rushav3.xyz<br>
 ❤️ 👉 【地址4】 ： www.rushav4.xyz<br>
 ❤️ 👉 【地址5】 ： www.rushav5.xyz<br>
-</font>
+</p>
 😎😎Rush在线看片最新地址发布😎😎
 
 RushAV,Rush在线看片,RushAV最新地址,RushAV网发布页,RushAV网最新地址,RushAV网网址多少
