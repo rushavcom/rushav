@@ -1,4 +1,4 @@
-<p style="font-family:fantasy; font-size:xx-large; font-weight:900; font-style:normal; ">
+<p style="font-family:fantasy; font-size:xx-large; font-weight:900; font-style:normal">
 Rush<br>
 ❤️ 👉 【重要提醒】收藏 Rush在线看片-免费视频 www.rushdizhi.com 避免迷路！<br>
 ❤️ 👉 【地址1】 ： www.rushav1.xyz<br>
